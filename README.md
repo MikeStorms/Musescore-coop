@@ -14,3 +14,6 @@ moet geen extra stemmen hebben, gewoon uitgebreid.
 * Met de trein naar oostende
 * O ja le le
 * Happy
+* Let's go swimming (Bart Peeters)
+* La Bamba
+* Allemaal (Wim Soutaer)
